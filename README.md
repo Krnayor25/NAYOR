@@ -29,7 +29,7 @@ It all begins from one laptop… and goes all the way to **India’s future crea
 ---
 ## 🌐 Links (Coming Soon)
 
-- 🔗 Website: [Visit](https://github.com/Krnayor25)*(will be updated after launch)
+- 🔗 Website: [Visit](https://krnayor25.github.io/NAYOR/)*(will be updated after launch)
 - 📷 Instagram: [Follow](https://www.instagram.com/info.nayor/)
 - 📺 YouTube: [Subscribe](https://www.youtube.com/@Nayor_animation)
 
