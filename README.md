@@ -10,7 +10,7 @@ We're building a creative powerhouse from scratch — with dreams bigger than th
 This is the **official repository** for Nayor’s upcoming website.  
 We’re currently laying the foundation, designing our **logo**, and leveling up in **3D animation** (currently learning 💻👨‍💻).
 
-⏳ Estimated Website + Logo Launch: **Late 2025 (within 6 months)**  
+⏳ Estimated Website + Logo Launch: **IN 2026**  
 📈 Till then, stay tuned as we grow — skill by skill, pixel by pixel.
 
 ---
